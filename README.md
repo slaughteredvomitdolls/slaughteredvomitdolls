@@ -1,4 +1,4 @@
-![Profile views](https://komarev.com/ghpvc/?username=slaughteredvomitdoll&color=red) ![GitHub followers](https://img.shields.io/github/followers/slaughteredvomitdoll?style=flat-square&color=red)
+![Profile views](https://komarev.com/ghpvc/?username=slaughteredvomitdoll&color=red) ![GitHub followers](https://img.shields.io/github/followers/slaughteredvomitdoll&style=flat-square&color=red)
 
 
 <p> <h> <bold> hi im aya peoples call me aya and my friends call me nonchalant final boss but aya is cool too. </bold> </h> </p>

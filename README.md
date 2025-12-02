@@ -6,6 +6,8 @@
 <p>i curse and say bad stuffs a lot. like saying racials slurs, kys jokes and cringy stuffs. generally imma try to adapt to your way of be. if i see that you dont curse, i wont curse. thats as easy. and if i do and that its annoys you, just say me. but i might say "no fuck you".</p>
 <p>i love femtnyal and things like this i love this this bless my damn ears whenever i lsiten to it and i lov slipknot korn nirvana weezer rob zombie kitty likin park mindless indlugens</p>
 
+<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/playlist/0ajszaMEAXLBTELzMfmoia?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 <img width="228" height="219" alt="image" src="https://github.com/user-attachments/assets/e523bc2c-381b-43cc-9f02-8a29f34dd4bc" />
 
 

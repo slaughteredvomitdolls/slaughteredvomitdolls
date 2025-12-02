@@ -31,7 +31,7 @@
 
  <p>hi im aya peoples call me aya and my friends call me nonchalant final boss but aya is cool too.</p>
 
-<p>im minor, (42 on pony town, 64 on pinterest, 19 on roblox and 14 in general.) feel free to stop speaking to me if im too young or anything. im panseuxal, happily married and beating up my male wife and totally non binairy please use they/them stop calling me "man" "girl" "boy" "miss" IM PERSON IM FUCKING NOBBODY OK SHUT THE FUCK UP :(</p>
+<p>im minor, (42 on pony town, 64 on pinterest, 19 on roblox and 14 in general.) feel free to stop speaking to me if im too young or anything. im totally non binairy please use they/them stop calling me "man" "girl" "boy" "miss" IM PERSON IM FUCKING NOBBODY OK SHUT THE FUCK UP STOP ASKING ME FOR BOOBS PICS I CUTTEDDS THEM YERSTDDYA TO DO SALAD :(</p>
 
 <p>im naturally a dry texter with everyone even my closers friends. thats a part of me. and sometimes im messy writter. this eventually depends on my mood. </p>
 

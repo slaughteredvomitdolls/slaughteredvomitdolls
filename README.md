@@ -1,4 +1,4 @@
-![Profile views](https://komarev.com/ghpvc/?username=slaughteredvomitdolls)
+![Profile views](https://komarev.com/ghpvc/?username=slaughteredvomitdoll&color=red)
 
 <p> <h> <bold> hi im aya peoples call me aya and my friends call me nonchalant final boss but aya is cool too. </bold> </h> </p>
 <p>im minor, (42 on pony town, 64 on pinterest, 19 on roblox and 14 in general.) feel free to stop speaking to me if im too young or anything. im panseuxal, happily married and beating up my male wife and totally non binairy please use they/them stop calling me "man" "girl" "boy" "miss" IM PERSON IM FUCKING NOBBODY OK SHUT THE FUCK UP :( </p>

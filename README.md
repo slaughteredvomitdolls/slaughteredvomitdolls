@@ -1,4 +1,4 @@
-![Profile views](https://komarev.com/ghpvc/?username=slaughteredvomitdoll&color=red) ![GitHub followers](https://img.shields.io/github/followers/slaughteredvomitdolls?style=plastic&color=red)
+![Profile views](https://komarev.com/ghpvc/?username=slaughteredvomitdoll&color=red&style=plastic) ![GitHub followers](https://img.shields.io/github/followers/slaughteredvomitdolls?style=plastic&color=red)
 
 
 

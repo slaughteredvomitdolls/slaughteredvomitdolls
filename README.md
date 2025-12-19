@@ -1,15 +1,9 @@
-<div align="center">
-
-<img width="500" height="250" alt="image" src="https://github.com/user-attachments/assets/b9790ebc-3727-4138-a303-c987f29b904c" />
 
 
 
 
 
 
-</div>
-
----
 
 <div align="center">
 
@@ -88,10 +82,9 @@
 <p>https://www.roblox.com/users/8785533976/profile</p>
 <p>https://en.pronouns.page/@fucking_angel</p>
 <div align="center">
+
  
----
- 
-<img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/a3df377f-b62e-4719-b091-7f7a28f608a0" />
+
 
 
 

@@ -1,8 +1,4 @@
-
-<body>
-  <img src="ar6lbg.gif" alt="GIF animé">
-</body>
-
+file:///C:/Users/Lyz/Downloads/ar6lbg.gif
 
 <div align="center">
 
@@ -89,5 +85,6 @@ file:///C:/Users/Lyz/Downloads/086236d230c1b2bb5a22b2a090f6b63a4314209a.gif
 
 
 
+file:///C:/Users/Lyz/Downloads/086236d230c1b2bb5a22b2a090f6b63a4314209a.gif
 
 </div>

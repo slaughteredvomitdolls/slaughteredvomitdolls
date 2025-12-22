@@ -1,4 +1,4 @@
-file:///C:/Users/Lyz/Downloads/ar6lbg.gif
+
 
 <div align="center">
 
@@ -69,7 +69,6 @@ file:///C:/Users/Lyz/Downloads/ar6lbg.gif
 
 <div align="center">
 
-file:///C:/Users/Lyz/Downloads/086236d230c1b2bb5a22b2a090f6b63a4314209a.gif
 
 </div>
 <p>https://colormytree.me/2025/01KD3A1RBZ62NTK7ABDXV54K23</p>
@@ -85,6 +84,5 @@ file:///C:/Users/Lyz/Downloads/086236d230c1b2bb5a22b2a090f6b63a4314209a.gif
 
 
 
-file:///C:/Users/Lyz/Downloads/086236d230c1b2bb5a22b2a090f6b63a4314209a.gif
 
 </div>

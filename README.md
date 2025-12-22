@@ -1,5 +1,7 @@
 
-<img src="ar6lbg.gif" alt="GIF animé">
+<body>
+  <img src="ar6lbg.gif" alt="GIF animé">
+</body>
 
 
 <div align="center">

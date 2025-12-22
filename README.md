@@ -1,11 +1,5 @@
 
-
-
-mon-projet/
-├── index.html
-└── ar6lbg.gif
-
-
+<img src="ar6lbg.gif" alt="GIF animé">
 
 
 <div align="center">

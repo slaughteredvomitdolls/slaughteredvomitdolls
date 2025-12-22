@@ -1,4 +1,4 @@
-<img src="ar6lbg.gif" alt="GIF">
+
 
 
 <div align="center">

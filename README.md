@@ -43,7 +43,7 @@
 
 <p>i really like fyodor mikhailovich dostoevsky. its my favorite writter. i like necro morselli too, tobias erin rodgers, nina, jeff, jeremy jankles and things like this.</p>
 
-<p>im into a lot of dark fandoms. i like creepypastas, ranfren, ttwonkies, roblox, boisvert, mandala catalog, and idk anymore. shrugs. i forgor.</p>
+<p>im into a lot of dark fandoms. i like creepypastas, kevin spencer, ranfren, ttwonkies, roblox, boisvert, mandala catalog, and idk anymore. shrugs. i forgor.</p>
 
 <p>i love femtnyal and things like this i love this this bless my damn ears whenever i lsiten to it and i lov slipknot korn nirvana weezer rob zombie kitty likin park mindless indlugens </p>
 

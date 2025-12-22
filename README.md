@@ -1,7 +1,10 @@
 
 
 
-file:///C:/Users/Lyz/Downloads/ar6lbg.gif
+mon-projet/
+├── index.html
+└── ar6lbg.gif
+
 
 
 

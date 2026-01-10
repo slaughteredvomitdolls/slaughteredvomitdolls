@@ -57,7 +57,7 @@
 
 </div>
 
-<p>im very problematic. i curse and say bad stuffs a lot. like saying racials slurs, kys jokes and cringy stuffs. generally imma try to adapt to your way of be. if i see that you dont curse, i wont curse. thats as easy. and if i do and that its annoys you, just say me. but i might say "no fuck you".</p>
+<p>im lwk problematic. i curse and say bad stuffs a lot. like saying racials slurs, kys jokes and cringy stuffs. generally imma try to adapt to your way of be. if i see that you dont curse, i wont curse. thats as easy. and if i do and that its annoys you, just say me. but i might say "no fuck you".</p>
 <p> im kinda fucked up ngl and i might be really rude toward you. if you doesnt like it, just please, stop trying. i wont change my way of be just for you. i act rude/non caring toward everyone, and when i say everyone, its really everyone.</p>
 <p>you can tell me that you get beaten up by your parents, that youre sucidal, or anything horrible about you, but dont wait that i try to make you feel better. im really bad to make peoples feel better and im sadly not a psycholog. im young and i got my problems, which is already enough. i dont need to know yours problems.</p>
 <p>as i said, i wont change my way of speaking just for you. no i wont use tonetags for you. jokes are jokes, if you dont remark that when i say "im going to kidnap you" or "can i pee with you" its a joke or not serious, sorry for you but youre lowkey stupid to me. of course, you're surely not, dont feel attacked by what i say.</p>

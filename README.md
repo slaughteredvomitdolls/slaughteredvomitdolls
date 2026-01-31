@@ -30,10 +30,8 @@
 
 
 
-
-<div style="float:  ; max-height: 300px; position: fixed; left: 1px; bottom: 9px; z-index: 200;">
-<img src="https://img1.picmix.com/output/stamp/normal/6/7/6/3/2363676_b8259.gif" width="300" height="300"/></div>
-
+<div style="float:  ; max-height: 400px; position: fixed; right: 1px; top: 9px; z-index: 200;">
+<img src="https://i.pinimg.com/236x/2b/52/08/2b52088000eea7cc5359e7323c1badca.jpg" width="350" height="350"/></div>
 
 <p><a href="https://spacehey.com/profile?id=4237452">jimthemoid69</a></p>
 

@@ -26,7 +26,7 @@
 
 <p> some of my fandoms : ranfren, cry of fear, psychojesus, creepypastas, kevin spencer and idk i forgot mandala catalog??? idk...boisvert...</p>
 
-<p> andreas rönnberg is so fucking cute okay i wont die in peace until i see him from my poper eyes</p>
+<p> andreas rönnberg is so fucking cute okay i wont die in peace until i see him from my proper eyes</p>
 
 
 

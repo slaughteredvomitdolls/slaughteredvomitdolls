@@ -22,10 +22,12 @@
 
 <p> pronous they/them he/him </p>
 
-<p> my dni are : furries/therians, oversexualized people (nsfw jokes are ok, as long you arent too serious), humorless people, who doesnt understand satire things, oversensible individuals, persons who are trying to find love online, people who hate christianism and others religions for no reasons (i mean by this, let me be catholic?? like im not forcing anyone to be. and weirdly its always the people who are hating on religions who are using "ong" "omg" so js lol), persons who are hating on any slight problematic things and thennn if u int me and that theres something that i dont like about you im surely gonna give me less attention tha i usually do with anyone </p>
+<p> my dni are : overwoke, furries/therians, oversexualized people (nsfw jokes are ok, as long you arent too serious), humorless people, who doesnt understand satire things, oversensible individuals, persons who are trying to find love online, people who hate christianism and others religions for no reasons (i mean by this, let me be catholic?? like im not forcing anyone to be. and weirdly its always the people who are hating on religions who are using "ong" "omg" so js lol), persons who are hating on any slight problematic things and thennn if u int me and that theres something that i dont like about you im surely gonna give me less attention tha i usually do with anyone </p>
 
 <p> some of my fandoms : ranfren, cry of fear, psychojesus, creepypastas, kevin spencer and idk i forgot mandala catalog??? idk...boisvert...</p>
 
+<p>i might seem mean and out of hand, well im sorry if i hurt you emotionaly. im never really serious, always doing pretty bad jokes, and well, if is it, this means that im pretty happy and overstimulated. i dislike people who are int me only for my fandoms, please int me for how i act. tfc fandom is pissing me off a lot, then im a fan of the game. fnaf too. the fans are very cringey etc... im just like that. even if your in my favorites fandoms, just keep in mind that what you know wont make me like you more. this is how you act thats gonna determine if i like u or no. if i dont like u, dont try, its already too late. i wont ever like u. well logical.</p>
+<p> i hate overwoke people. being woke is a thing, i don't mind it; but theres limits. im sorry but it you collection genders, pronous etc like damn pokemons, just dont int me. this shit is like saying "yeah im non binairy aroace gay and lesbian but not bisexual and im a demi girl demi boy too" like bro shut up we got it ugh</p>
 <p> andreas rönnberg is so fucking cute okay i wont die in peace until i see him from my proper eyes</p>
 
 

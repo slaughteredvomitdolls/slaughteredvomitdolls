@@ -35,7 +35,9 @@
 
 
 <div style="float:  ; max-height: 400px; position: fixed; right: 1px; top: 9px; z-index: 200;">
-<img src="https://files.catbox.moe/r8rtvc.png" width="350" height="350"/></div>
+<img src="https://files.catbox.moe/c34hac.png" width="350" height="350"/></div>
+
+<p>toby s cute </p>
 
 <p><a href="https://spacehey.com/profile?id=4237452">jimthemoid69</a></p>
 

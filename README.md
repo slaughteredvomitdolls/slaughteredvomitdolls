@@ -1,4 +1,4 @@
-
+pfp by : me ahahahah losers 
 
 <div align="center">
 
@@ -23,7 +23,7 @@
 <p> pronous he/him and htey/them is ok also</p>
 <p> im on spacehey a lot (my acc is <a href="https://spacehey.com/baisetondaron">jim_ihateyou69</a>), discord im a bit less but my user name is jimthemoid69, and yeah that's all
 </p>
-<p>i love my friends oomen maruwa noah wilson vincent xero and all</p>
+<p>i love my friends oomen maruwa noah wilson vincent oliver laine qwq linos emz misha and all</p>
 <p>i so skate sometimes i play drums, a bit of hockey on ice, i love sleeping and chewing ice cubes and bla bla bla</p>
 <p> my dni are : overwoke, furries/therians, oversexualized people (nsfw jokes are ok, as long you arent too serious), humorless people, who doesnt understand satire things, oversensible individuals, persons who are trying to find love online, people who hate christianism and others religions for no reasons (i mean by this, let me be catholic?? like im not forcing anyone to be. and weirdly its always the people who are hating on religions who are using "ong" "omg" so js lol), persons who are hating on any slight problematic things and thennn if u int me and that theres something that i dont like about you im surely gonna give me less attention tha i usually do with anyone </p>
 

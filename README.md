@@ -21,7 +21,7 @@ pfp by : me ahahahah losers
 <p> dont wait me to be kind with you im gonna be very cold distant and dry cause im like that </p>
 
 <p> pronous he/him and htey/them is ok also</p>
-<p> im on spacehey a lot (my acc is <a href="https://spacehey.com/baisetondaron">jim_ihateyou69</a>), discord im a bit less but my user name is jimthemoid69, and yeah that's all
+<p> im on spacehey a lot (my acc is <a href="https://spacehey.com/deredere57">jim_ihateyou69</a>), discord im a bit less but my user name is jimthemoid69, and yeah that's all
 </p>
 <p>i love my friends oomen maruwa noah wilson vincent oliver laine qwq linos emz misha and all</p>
 <p>i so skate sometimes i play drums, a bit of hockey on ice, i love sleeping and chewing ice cubes and bla bla bla</p>

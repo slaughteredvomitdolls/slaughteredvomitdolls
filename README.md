@@ -2,6 +2,7 @@ pfp by : @Hierarchyj
 
 <P>i like zero day (not tcc), marble hornets, creepypasta, cry of fear, mlp, and yeah i guess thats all </P>
 <P>have no dni just be nice funny and cool and consider that you can int me as long you dont start to try to make me believe your ideas about the end of the world if we dont all become therian or sm</P>
+<p>also last point, dont use tonetags or typing quirk with me if you dont wanna be joked on or just not being understood.</p>
 <div align="center">
 
 

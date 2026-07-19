@@ -1,4 +1,4 @@
-pfp by : me ahahahah losers 
+pfp by : @Hierarchyj
 
 <div align="center">
 
@@ -7,43 +7,11 @@ pfp by : me ahahahah losers
 ![Views](https://komarev.com/ghpvc/?username=slaughteredvomitdolls&style=plastic&color=ff99cc)
 ![Followers](https://img.shields.io/github/followers/slaughteredvomitdolls?style=plastic&color=ff99cc)
 
-[![Spotify Playlist](https://img.shields.io/badge/Spotify-Playlist-1DB954?style=plastic&logo=spotify&logoColor=white)](https://open.spotify.com/playlist/0ajszaMEAXLBTELzMfmoia?si=s0qtmbdqR7et6zooyblv9Q)
+[![Spotify Playlist](https://img.shields.io/badge/Spotify-Playlist-1DB954?style=plastic&logo=spotify&logoColor=white)](https://open.spotify.com/playlist/3ZqcoaPhHZ5dCCEMOgZMEh)
 
 
 
 <p>    <img src="http://www.nerdtests.com/images/ft/lsr.php?val=0758" alt="I am 100% loser. What about you? Click here to find out!"/>  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c350de11-8c52-4be4-bc28-608bfd99bd53/dd9gh5b-f8988c06-aa54-456a-8848-0aab2fd1acea.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2MzNTBkZTExLThjNTItNGJlNC1iYzI4LTYwOGJmZDk5YmQ1M1wvZGQ5Z2g1Yi1mODk4OGMwNi1hYTU0LTQ1NmEtODg0OC0wYWFiMmZkMWFjZWEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.AyovtyvFBheUuQf8Ny6REtbQPMtQqrpzuse3AtVDAeE"/><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c350de11-8c52-4be4-bc28-608bfd99bd53/d966ig9-144039fa-fd06-4875-9f4a-5e25ccf701ce.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2MzNTBkZTExLThjNTItNGJlNC1iYzI4LTYwOGJmZDk5YmQ1M1wvZDk2NmlnOS0xNDQwMzlmYS1mZDA2LTQ4NzUtOWY0YS01ZTI1Y2NmNzAxY2UucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.22CaK3aY1EbfOe6nrGQpOr3uFGdP1RaQAEMfiv7dNls"/>   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c350de11-8c52-4be4-bc28-608bfd99bd53/da87fbl-c98b10d8-72f4-46d2-9eb4-56340d794091.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2MzNTBkZTExLThjNTItNGJlNC1iYzI4LTYwOGJmZDk5YmQ1M1wvZGE4N2ZibC1jOThiMTBkOC03MmY0LTQ2ZDItOWViNC01NjM0MGQ3OTQwOTEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.3NlZ8AQX_8smE0DZWblOXurCQDsYokV-FpKcYbNeMOw"/>  </p>
-
-
-<p> im the n°1 jim </p>
-
-<p> ughhh in short im jim everyones calls me jim im male and lwk minor and demi boy </p>
-
-<p> dont wait me to be kind with you im gonna be very cold distant and dry cause im like that </p>
-
-<p> pronous he/him and htey/them is ok also</p>
-<p> im on spacehey a lot (my acc is <a href="https://spacehey.com/deredere57">jim_ihateyou69</a>), discord im a bit less but my user name is jimthemoid69, and yeah that's all
-</p>
-<p>i love my friends oomen maruwa noah wilson vincent oliver laine qwq linos emz misha and all</p>
-<p>i so skate sometimes i play drums, a bit of hockey on ice, i love sleeping and chewing ice cubes and bla bla bla</p>
-<p> my dni are : </p>
-<p>overwoke, furries/therians (i dont care if you are one to be honest, as long you don't hurt anyone, just dont come to me with the idea of talking with me about your fursona or anything)</p>
-<p>oversexualized people (nsfw jokes are ok, as long you arent too serious)</p>
-<p>people who say "yeah im so edgy grr rawr", like dude, you got a tcoaal pfp, you say you go on 4chan but don't even what is /pol/, you tell to everyone that you qualify yourself as a cannibal just cause it's "cool", ok we understood you stupid larp</p>
-<p>then humorless people, who doesnt understand satire things</p>
-<p>oversensible individuals, persons who are trying to find love online, people who hate on christianism and others religions for no reasons (i mean by this, let me be catholic?? like im not forcing anyone to be. and weirdly its always the people who are hating on religions who are using "ong" "omg" so js lol)</p>
-<p>persons who are hating on any slight "problematic" things and thennn if u int me and that theres something that i dont like about you im surely gonna give me less attention tha i usually do with anyone </p>
-
-<p> some of my fandoms :</p>
-<P>ranfren (hating the fandom), cry of fear, zero day, psychojesus (a bit less now), creepypastas, tombs serial slashing, kevin spencer (a bit less now), mandala catalog, backrooms, marble hornets, tribetewlve, everyman hybrid</p>
-<p> i like mayhem, nine inch nails, dystopia, shluzov, dj trippie flameboy, overtonight, 5mewmew, wifiskeleton, migas, fried by fluoride, negative xp, edgemaster42, dayerteq and yeahh etcc...</p>
-
-<p>i might seem mean and out of hand, well im sorry if i hurt you emotionaly. im never really serious, always doing pretty bad jokes, and well, if is it, this means that im pretty happy and overstimulated. i dislike people who are int me only for my fandoms, please int me for how i act. tfc fandom is pissing me off a lot, then im a fan of the game. fnaf too. the fans are very cringey etc... im just like that. even if your in my favorites fandoms, just keep in mind that what you know wont make me like you more. this is how you act thats gonna determine if i like u or no. if i dont like u, dont try, its already too late. i wont ever like u. well logical.</p>
-<p> i hate overwoke people. being woke is a thing, i don't mind it; but theres limits. im sorry but it you collection genders, pronous etc like damn pokemons, just dont int me. this shit is like saying "yeah im non binairy aroace gay and lesbian but not bisexual and im a demi girl demi boy too" like bro shut up we got it ugh</p>
-<p>thin ice: crk, dw, tfc, btd then the 2, ykmet, omori, genshin impact, minecraft, fnaf, kpdh (if joke skin of kpdh, thats ok, but like if ur not joking or anything like no. NO. STOP AND LEAVE NOW PLEASE.), szha tutos skins or simply tutos skins in general, dot eyed creatures or cat idk then blah blah blah...im sorry but people who are using tutos skins and dot eyed cats are so not imaginative, like this is not hard to create a skin by yourself? and then those people got no humor, no brain, like if they were stupid and not even funny. dead combo.</p>
-<p> sorry im a little dyslexic so if its not understanable then i cant help u cus i rpolly dont even know myself </p>
-<p> andreas rönnberg is so fucking cute okay i wont die in peace until i see him from my proper eyes</p>
-
-
 
 <div style="float:  ; max-height: 400px; position: fixed; right: 1px; top: 9px; z-index: 200;">
 <img src="https://files.catbox.moe/c34hac.png" width="300" height="150"/></div>
